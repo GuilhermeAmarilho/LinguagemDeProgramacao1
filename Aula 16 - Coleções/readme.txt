@@ -1,3 +1,0 @@
-* Conteúdo:
-
-Exercícios

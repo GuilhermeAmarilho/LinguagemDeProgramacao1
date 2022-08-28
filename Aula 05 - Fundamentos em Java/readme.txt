@@ -1,3 +1,0 @@
-* Conteúdo:
-
-Resolução de Exercícios
